@@ -1,0 +1,1 @@
+# yeddeul-attendance-assets
